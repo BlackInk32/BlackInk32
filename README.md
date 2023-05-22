@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @BlackInk32
-- 👀 I’m interested in Physics & Football
+- 👋 Hi, I’m @ ATÓM
+- 👀 I’m interested in Physics & Sleeping
 - 🌱 I’m currently learning ?
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate with P3
 - 📫 How to reach me - you cannot 
 
 <!---
